@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @deep4anshu
-- 👀 I’m interested in Singing
+- 👀 I’m interested in Singing, Coding & Learning
 - 🌱 I’m currently learning Programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Butwal, Nepal
